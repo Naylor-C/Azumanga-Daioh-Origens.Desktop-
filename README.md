@@ -1,0 +1,1 @@
+# Azumanga-Daioh-Origens.Desktop-
